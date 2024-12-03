@@ -1,2 +1,2 @@
 # javascript-practice
-I have 4 charges of domestic skibidi
+go to skibidi.glitch.me to see the best of my creativity
